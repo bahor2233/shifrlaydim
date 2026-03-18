@@ -1,0 +1,2 @@
+# shifrlaydim
+so;zlarni shifrlaydi
